@@ -69,12 +69,14 @@ Every melody feels like it’s secretly whispering your name ♡
 
 ---
 
-## (≧◡≦) ♡ For You, My Eshal  
+## (≧◡≦) ♡ Photo Memories
 
-![Photo 1](https://ibb.co/0pSWRnzT)  
-![Photo 2](https://ibb.co/sd3rBnXn)  
+A couple more snippets of us, little keepsakes that make me smile:
 
-Every picture, every smile, every little thing... it’s all stitched into my heart (つ≧▽≦)つ♡  
+[![Eshal — ourlove](https://i.ibb.co/mrwYVRPk/Screenshot-2025-09-30-at-1-03-44-AM.png)](https://e5koibito.github.io/ourlove)
+[![Me — ourlove](https://i.ibb.co/DHKnqhjh/image.png)](https://e5koibito.github.io/ourlove)
+
+Every picture, every smile, every tiny thing — it’s all stitched into my heart (つ≧▽≦)つ♡
 
 ---
 
