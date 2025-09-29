@@ -5,7 +5,7 @@ If you’re reading this... this is me, writing my heart into Markdown, hoping y
 
 ---
 
-![I miss being close to you](https://media1.tenor.com/m/32aFuKrjSmUAAAAd/i-wanna-hold-you-i-miss-being-close-to-you.gif)  
+![Welcome!](https://i.pinimg.com/originals/56/04/13/5604133081dacc923e3c5d96032ac60e.gif)  
 
 ---
 
